@@ -1,1 +1,1 @@
-# Byfron
+# Byfron, Byfron Technologies is a world leader in software protection for games. We deliver high performance, state-of-the-art anti-reverse engineering and anti-tamper protection for your digital worlds.
